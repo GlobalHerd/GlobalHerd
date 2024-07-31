@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GlobalHerd
 - 👀 I’m interested in ... keeping boredom at bay
 - 🌱 I’m currently learning ... unity
-- 💞️ I’m looking to collaborate on ... whatever
+- 💞️ I’m looking to collaborate on ... i know nothing
 - 📫 How to reach me ... twitter @GlobalHerd82
 - 😄 Pronouns: ... he/him
 - ⚡ Fun fact: ... :D
